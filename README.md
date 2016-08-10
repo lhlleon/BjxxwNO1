@@ -1,6 +1,6 @@
 Leon Lee  
 
-The first one App in App Store
+The first app .. App in App Store
 
 北京信息网  最初版app
 
